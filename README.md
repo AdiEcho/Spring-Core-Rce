@@ -6,4 +6,3 @@ coming soon
 
 还是自己悄咪咪玩吧
 
-![image](image/B036A3CB1207F617DC8885D9FD138C70.jpg)
